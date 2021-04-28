@@ -1,0 +1,1 @@
+#Üçüncü günde yapılan örnekler
