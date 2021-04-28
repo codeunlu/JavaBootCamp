@@ -1,1 +1,1 @@
-#Üçüncü günde yapılan örnekler
+#Üçüncü günde yapılan örnekler ve uygulama ödevleri
